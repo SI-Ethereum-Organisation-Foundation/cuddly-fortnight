@@ -1,0 +1,4 @@
+SI.README Isabel Schoeps founder der BOERSENNOTIERTEN Cryptowaehrung and fortnight
+![SI ethereum org](https://github.com/SI-Ethereum-Organisation-Foundation/cuddly-fortnight/assets/127110010/9640a8b7-31a9-444d-882e-df1ec12b4466)
+![SI IsabelSchoepd](https://github.com/SI-Ethereum-Organisation-Foundation/cuddly-fortnight/assets/127110010/e68be506-8ab4-4264-9529-b9fcfeb13bb8)
+![IsabelSchoepsNoLicence](https://github.com/SI-Ethereum-Organisation-Foundation/cuddly-fortnight/assets/127110010/f5258ac2-95c6-4158-9fa1-ffa2f33c0fb4)
